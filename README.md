@@ -1,6 +1,8 @@
 # How to Build a Strong Online Presence
 
-It might come across as a little extreme, but in this day and age, if your work isn’t online, it doesn’t exist. We all have the opportunity  to use our voices, to have our say, but so many of us are wasting it. If you want people to know about what you do and the things you care about, you have to share.
+> It sounds a little extreme, but in this day and age, if your work isn’t online, it doesn’t exist. We all have the opportunity  to use our voices, to have our
+> say, but so many of us are wasting it. If you want people to know about what you do and the things you care about, you have to share.
+- Austin Klein, Author of [Show Your Work]
 
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it.
