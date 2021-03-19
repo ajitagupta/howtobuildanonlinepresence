@@ -5,6 +5,8 @@
 
 Austin Kleon, Author of *Show Your Work*
 
+It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning freelancer. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers who will find out about your skills. That's what this post is all about.
+
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it.
 
@@ -14,7 +16,9 @@ Ideally, your summary should go back to as far as your education, describe your 
 Networking doesn't have to be done in person. Browse through member profiles and connect to those you can relate to on a professional level. Have your CV ready in case you are actively seeking employment.
 
 ## Website
-I have seen many people (especially students) create a web page to describe themselves in detail and showcase a few projects. I do not consider this to be appropriate nor professional. Projects can easily be shared on GitHub, whereas the extra information about you is not meant to be online. Websites are a convention used in academia or research, where people enumerate their list of papers, collaborators and share their review activities. For other purposes, LinkedIn is generally sufficient. If you insist on making one make sure it's got an aesthetically pleasing template. If you are a business make sure your website is simple and user-friendly.
+It is obvious. You want to earn money by selling beautiful leather bags. But first the industry needs to recognize your talent. Without a portfolio, no one will know what bags you make! Then nobody will trust you and you won't earn any money! And that's why you should put your work on the web! Besides platforms like Soundcloud where you can upload your recorded songs, you should think about a professional portfolio.
+
+The most important thing is the appearance, thanks to which you will convey emotions, achieve a professional image and show your love for your craft.
 
 ## Blog
 Blogs are multi-purpose and used by many - for knowledge sharing, ecommerce, digital marketing, magazines, etc. It's worth all the extra work if you are a regular and your posts are unique (e.g. travel stories). In all other cases I find it redundant and a waste of domain space. Ask yourself: *What does the blog convey about me?*. Keep your personal life private. On company pages blogs are used for news and recent updates, perhaps even branding. Vlogs (video blogs) on YouTube are also quite widely used.
