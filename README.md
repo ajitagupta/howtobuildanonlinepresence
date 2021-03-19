@@ -8,7 +8,7 @@ Austin Kleon, Author of *Show Your Work*
 It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills. That's what this post is all about.
 
 ## Social Media
-More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it.
+More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Don't just do enough to skate by. Go above and beyond.
 
 ## LinkedIn
 Ideally, your summary should go back to as far as your education, describe your work experience and skills concisely and comprehensively. There is ample space to share certificates, projects, publications and other feats. Prior work experience during your studies will almost always get you a job. If you are aiming at high profile MNC's such as Google you will have to do well academically unless you can compensate it with significant project work.
