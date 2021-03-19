@@ -5,7 +5,7 @@
 
 Austin Kleon, Author of *Show Your Work*
 
-It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning freelancer. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers who will find out about your skills. That's what this post is all about.
+It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills. That's what this post is all about.
 
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it.
