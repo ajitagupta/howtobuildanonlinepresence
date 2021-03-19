@@ -18,7 +18,7 @@ Networking doesn't have to be done in person. Browse through member profiles and
 ## Website
 It is obvious. You want to earn money by selling beautiful leather bags. But first the industry needs to recognize your talent. Without a portfolio, no one will know what bags you make! Then nobody will trust you and you won't earn any money! And that's why you should put your work on the web! Besides platforms like Soundcloud where you can upload your recorded songs, you should think about a professional portfolio.
 
-Take advantage of website builders. There are hundreds of templates to choose from. The most important thing is the appearance, thanks to which you will convey emotions, achieve a professional image and show your love for your craft.
+Take advantage of website builders. Amongst the great number of templates you will also find those dedicated to your industry. The most important thing is the appearance, thanks to which you will convey emotions, achieve a professional image and show your love for your craft.
 
 ## Blog
 Blogs are multi-purpose and used by many - for knowledge sharing, ecommerce, digital marketing, magazines, etc. It's worth all the extra work if you are a regular and your posts are unique (e.g. travel stories). In all other cases I find it redundant and a waste of domain space. Ask yourself: *What does the blog convey about me?*. Keep your personal life private. On company pages blogs are used for news and recent updates, perhaps even branding. Vlogs (video blogs) on YouTube are also quite widely used.
