@@ -10,7 +10,7 @@ If you just focus on getting really good people will come to you. You don't real
 ## Social Media and Forums
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Get set up on Twitter and other social networks. Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Go above and beyond. Think outside the box - creativity is a key ingredient to success!
 
-If you want followers, be someone worth following. If you want to be interesting, you have to be interested. Be attentive. Stay curious. 
+If you want followers, be someone worth following. If you want to be interesting, you have to be interested. Be attentive. Stay curious. Don't take criticism personally.
 
 ## LinkedIn
 Ideally, your summary should go back to as far as your education, describe your work experience and skills concisely and comprehensively. There is ample space to share certificates, projects, publications and other feats. Prior work experience during your studies will almost always get you a job. If you are aiming at high profile MNC's such as Google you will have to do well academically unless you can compensate it with significant project work.
