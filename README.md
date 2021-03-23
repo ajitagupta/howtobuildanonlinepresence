@@ -25,6 +25,8 @@ Take advantage of website builders. Amongst the great number of templates you wi
 ## Blog
 Blogs are multi-purpose and used by many - for knowledge sharing, ecommerce, digital marketing, magazines, etc. It's worth all the extra work if you are a regular and your posts are unique (e.g. travel stories). In all other cases I find it redundant and a waste of domain space. Ask yourself: *What does the blog convey about me?*. Keep your personal life private. On company pages blogs are used for news and recent updates, perhaps even branding. Vlogs (video blogs) on YouTube are also quite widely used.
 
+Post slowly, but steadily. Small things, over time, can get big.
+
 ## GitHub
 Today, an artist can share whatever she wants, whenever she wants, with whomever she wants and at almost no cost. This goes under the term open-source: software everyone can use and modify freely. GitHub allows to share your code with others. It also gives you the opportunitiy to garner feedback and improve your code. Since active work makes up most of our learning GitHub perfectly fits into the learning process.
 
