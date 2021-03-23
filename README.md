@@ -33,7 +33,7 @@ Today, an artist can share whatever she wants, whenever she wants, with whomever
 Create your GitHub account! You can build mobile apps and curated lists of your favourite learning material! You can design a website. You can write a tutorial. And share it with the world!
 
 ## Medium
-Medium is *the* source of news on technology but their catalogue of topics stretches far beyond that and encompasses art, food, culture, humor, sports and music. You can use Medium to keep yourself up to date on current trends in [data science](https://towardsdatascience.com/), learn about [startups](https://medium.com/swlh), read a tutorial on version control and build your knowledge progressively. Use these articles for inspiration and finally share your own story.
+Medium is *the* source of news on technology but their catalogue of topics stretches far beyond that and encompasses art, food, culture, humor, sports and music. You can use Medium to keep yourself up to date on current trends in [data science](https://towardsdatascience.com/), learn about [startups](https://medium.com/swlh), read a tutorial on version control and build your knowledge progressively. Use these articles for inspiration and finally share your own story. Go out of your way to share your knowledge and expertise.
 
 > In order for connection to happen, we have to allow ourselves to be seen - really seen.
 
