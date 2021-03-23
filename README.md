@@ -33,6 +33,10 @@ Create your GitHub account! You can build mobile apps and curated lists of your 
 ## Medium
 Medium is *the* source of news on technology but their catalogue of topics stretches far beyond that and encompasses art, food, culture, humor, sports and music. You can use Medium to keep yourself up to date on current trends in [data science](https://towardsdatascience.com/), learn about [startups](https://medium.com/swlh), read a tutorial on version control and build your knowledge progressively. Use these articles for inspiration and finally share your own story.
 
+> In order for connection to happen, we have to allow ourselves to be seen - really seen.
+
+Brené Brown
+
 ## Groups
 Groups give a sense of belonging. Sadly, most people do not actively contribute nor participate in discussions. Moreover, some just use it to brand themselves. That's plain wrong! Use this opportunity to connect to like-minded members, forge new relationships and grow your network, one step at a time. Moreover, by generously sharing ideas and knowledge, you often gain an audience you can then leverage when you need it - for fellowship, feedback or patronage.
 
