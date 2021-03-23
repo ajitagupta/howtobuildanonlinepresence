@@ -17,6 +17,8 @@ Ideally, your summary should go back to as far as your education, describe your 
 
 Networking doesn't have to be done in person. Browse through member profiles and connect to those you can relate to on a professional level. Do what you can to nurture your relationships with these people. Invite them to collaborate.
 
+Since 2016 you can also [publish articles on LinkedIn](https://www.linkedin.com/help/linkedin/answer/47538/publish-articles-on-linkedin?lang=en) and share them with your connections.
+
 ## Website
 It is obvious. You want to earn money by selling beautiful leather bags. But first the industry needs to recognize your talent. Without a portfolio, no one will know what bags you make! Then nobody will trust you and you won't earn any money! And that's why you should put your work on the web! Besides platforms like Soundcloud where you can upload your recorded songs, you should think about a professional portfolio.
 
