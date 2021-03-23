@@ -5,7 +5,7 @@
 
 Austin Kleon, Author of *Show Your Work*
 
-It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills. That's what this post is all about.
+If you ask yourself the following questions, this post is for you: How do I get my stuff out there? How do I get noticed? How do I find an audience? How did you do it?
 
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Go above and beyond. Think outside the box - creativity is a key ingredient to success.
@@ -31,3 +31,5 @@ Medium is *the* source of news on technology but their catalogue of topics stret
 
 ## Groups
 Groups give a sense of belonging. Sadly, most people do not actively contribute nor participate in discussions. Moreover, some just use it to brand themselves. That's plain wrong! Use this opportunity to connect to like-minded members, forge new relationships and grow your network, one step at a time.
+
+It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
