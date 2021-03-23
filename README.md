@@ -5,13 +5,12 @@
 
 Austin Kleon, Author of *Show Your Work*
 
-If you just focus on getting really good people will come to you. You don't really find an audience for your work; they find you. But it’s not enough to be good. In order to be found, you have to be findable. There’s an easy way of putting your work out there and making it discoverable while you're focused on getting really good at what you do. If you ask yourself the following questions, this post is for you: *How do I get my stuff out there? How do I get noticed? How do I find an audience? How did you do it?*
-
-## Why share?
-It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
+If you just focus on getting really good people will come to you. You don't really find an audience for your work; they find you. But it’s not enough to be good. In order to be found, you have to be findable. There’s an easy way of putting your work out there and making it discoverable while you're focused on getting really good at what you do.
 
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Go above and beyond. Think outside the box - creativity is a key ingredient to success.
+
+It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
 
 ## LinkedIn
 Ideally, your summary should go back to as far as your education, describe your work experience and skills concisely and comprehensively. There is ample space to share certificates, projects, publications and other feats. Prior work experience during your studies will almost always get you a job. If you are aiming at high profile MNC's such as Google you will have to do well academically unless you can compensate it with significant project work.
