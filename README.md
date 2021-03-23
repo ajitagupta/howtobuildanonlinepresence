@@ -1,19 +1,15 @@
 # How to Build a Strong Online Presence
 
-If you just focus on getting really good people will come to you. You don't really find an audience for your work; they find you. But it’s not enough to be good.
-
-In order to be found, you have to be findable. I think there’s an easy way of putting your work out there and making it discoverable while you’re focused on getting really good at what you do.
-
-
 > It sounds a little extreme, but in this day and age, if your work isn’t online, it doesn’t exist. We all have the opportunity  to use our voices, to have our
 > say, but so many of us are wasting it. If you want people to know about what you do and the things you care about, you have to share.
 
 Austin Kleon, Author of *Show Your Work*
 
-
-It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
-
+If you just focus on getting really good people will come to you. You don't really find an audience for your work; they find you. But it’s not enough to be good. In order to be found, you have to be findable. I think there’s an easy way of putting your work out there and making it discoverable while you're focused on getting really good at what you do.
 If you ask yourself the following questions, this post is for you: *How do I get my stuff out there? How do I get noticed? How do I find an audience? How did you do it?*
+
+## Why share
+It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
 
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Go above and beyond. Think outside the box - creativity is a key ingredient to success.
