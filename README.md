@@ -5,7 +5,7 @@
 
 Austin Kleon, Author of *Show Your Work*
 
-If you ask yourself the following questions, this post is for you: How do I get my stuff out there? How do I get noticed? How do I find an audience? How did you do it?
+If you ask yourself the following questions, this post is for you: *How do I get my stuff out there? How do I get noticed? How do I find an audience? How did you do it?*
 
 ## Social Media
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Go above and beyond. Think outside the box - creativity is a key ingredient to success.
