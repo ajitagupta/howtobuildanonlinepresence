@@ -1,9 +1,17 @@
 # How to Build a Strong Online Presence
 
+If you just focus on getting really good people will come to you. You don't really find an audience for your work; they find you. But it’s not enough to be good.
+
+In order to be found, you have to be findable. I think there’s an easy way of putting your work out there and making it discoverable while you’re focused on getting really good at what you do.
+
+
 > It sounds a little extreme, but in this day and age, if your work isn’t online, it doesn’t exist. We all have the opportunity  to use our voices, to have our
 > say, but so many of us are wasting it. If you want people to know about what you do and the things you care about, you have to share.
 
 Austin Kleon, Author of *Show Your Work*
+
+
+It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
 
 If you ask yourself the following questions, this post is for you: *How do I get my stuff out there? How do I get noticed? How do I find an audience? How did you do it?*
 
@@ -30,6 +38,9 @@ Everyone should have a GitHub account! Not only can you share your own, but also
 Medium is *the* source of news on technology but their catalogue of topics stretches far beyond that and encompasses art, food, culture, humor, sports and music. You can use Medium to keep yourself up to date and build your knowledge. Sharing and subscribing is very simple. and fun.
 
 ## Groups
-Groups give a sense of belonging. Sadly, most people do not actively contribute nor participate in discussions. Moreover, some just use it to brand themselves. That's plain wrong! Use this opportunity to connect to like-minded members, forge new relationships and grow your network, one step at a time.
+Groups give a sense of belonging. Sadly, most people do not actively contribute nor participate in discussions. Moreover, some just use it to brand themselves. That's plain wrong! Use this opportunity to connect to like-minded members, forge new relationships and grow your network, one step at a time. Moreover, by generously sharing ideas and knowledge, you often gain an audience you can then leverage when you need it - for fellowship, feedback or patronage.
 
-It doesn't matter if you are a graphic designer, copywriter, web developer or translator. If you can turn your talent or skills into profit, you have what it takes to be a high earning individual. By placing your ideas on local forums, groups in social media or portals, you will gain recognition. You will also gain the trust of future customers and employers who will find out about your skills.
+Imagine losing your job but having a social network of people familiar with your work and ready to help you find a new one. Imagine turning a side project or a hobby into your profession because you had a following that could support you. Or imagine something simpler and just as satisfying: spending the majority of your time, energy, and attention
+practicing a craft, learning a trade, or running a business, while also allowing for the possibility that your work might attract a group of people who share your interests.
+
+All you have to do is show your work.
