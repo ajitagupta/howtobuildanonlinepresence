@@ -39,7 +39,8 @@ Medium is *the* source of news on technology but their catalogue of topics stret
 
 Use these articles for inspiration and finally share your own story. Go out of your way to share your knowledge and expertise.
 > In order for connection to happen, we have to allow ourselves to be seen - really seen.
-Brené Brown
+
+Brené Brown, American professor
 
 ## Groups
 Groups give a sense of belonging. Sadly, most people do not actively contribute nor participate in discussions. Moreover, some just use it to brand themselves. That's plain wrong! Use this opportunity to connect to like-minded members, forge new relationships and grow your network, one step at a time. Moreover, by generously sharing ideas and knowledge, you often gain an audience you can then leverage when you need it - for fellowship, feedback or patronage.
