@@ -25,7 +25,7 @@ It is obvious. You want to earn money by selling beautiful leather bags. But fir
 Take advantage of website builders. Amongst the great number of templates you will also find those dedicated to your industry. The most important thing is the appearance, thanks to which you will convey emotions, achieve a professional image and show your love for your craft. Keep your site up-to-date. Build a good domain name and keep it clean.
 
 ## Blog
-Blogs are multi-purpose and used by many - for knowledge sharing, news, digital marketing, magazines, journaling etc. Your blog can be your sketchbook, your stage, your studio, your gallery, your storefront and your salon. It's your space. On company pages blogs are often used for related updates, perhaps even branding. Vlogs (video blogs) on YouTube are also quite widely used for creating tutorials, online courses and TV series.
+Blogs are multi-purpose and used by many - for knowledge sharing, news, digital marketing, magazines, journaling etc. Your blog can be your sketchbook, your stage, your studio, your gallery, your storefront and your salon. It's your space. You get to decide. On company pages blogs are often used for related updates, perhaps even branding. Vlogs (video blogs) on YouTube are also quite widely used for creating tutorials, online courses and TV series.
 
 Post slowly, but steadily. Small things, over time, can get big.
 
