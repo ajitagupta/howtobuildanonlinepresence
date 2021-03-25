@@ -5,7 +5,7 @@
 
 Austin Kleon, Author of *Show Your Work*
 
-If you just focus on getting really good you don't really find an audience for your work; they find you. That's that. But it’s not enough to be good. In order to be found, you have to be findable. There’s an easy way of putting your work out there and making it discoverable while you're focused on getting really good at what you do. That's what this post is all about.
+If you just focus on getting really good you don't really need to find an audience for your work; they find you. That's that. But it’s not enough to be good. In order to be found, you have to be findable. There’s an easy way of putting your work out there and making it discoverable while you're focused on getting really good at what you do. That's what this post is all about.
 
 ## Social Media and Forums
 More than ever before we are all hooked to social media. If you do not have a social media strategy yet, make one! Get set up on Twitter and other social networks. Convey a clear, strong and visually enticing message. Simply being active doesn't do it. Go above and beyond. Think outside the box - creativity is a key ingredient to success!
