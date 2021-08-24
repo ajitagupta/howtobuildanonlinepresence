@@ -15,7 +15,7 @@ If you want followers, be someone worth following. If you want to be interesting
 ## LinkedIn
 Ideally, your summary should go back to as far as your education, describe your work experience and skills concisely and comprehensively. There is ample space to share awards, extracurriculars, certificates, projects, publications and other achievements. Prior work experience during your studies must be mentioned as it puts you ahead of many other fellow students. If you are aiming at high profile MNC's such as Google you will have to do well academically unless you can compensate it with significant project work.
 
-Networking doesn't have to be done in person. Browse through member profiles and connect to those coming from different backgrounds, cultures and industries. Do what you can to nurture your relationships with these people. Invite them to collaborate. Ask for referals!
+Networking doesn't have to be done in person. Browse through member profiles and connect to those coming from different backgrounds, cultures and industries. Do what you can to nurture your relationships with these people. Invite them to collaborate. Ask for referrals!
 
 Since 2016 you can also [publish articles on LinkedIn](https://www.linkedin.com/help/linkedin/answer/47538/publish-articles-on-linkedin?lang=en) and share them with your connections.
 
