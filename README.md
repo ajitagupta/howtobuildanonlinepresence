@@ -23,6 +23,7 @@ Since 2016 you can also [publish articles on LinkedIn](https://www.linkedin.com/
 It is obvious. You want to earn money by selling beautiful leather bags. But first the industry needs to recognize your talent. Without a portfolio, no one will know what bags you make! Then nobody will trust you and you won't earn any money! And that's why you should put your work on the web! Besides platforms like Soundcloud where you can upload your recorded songs, you should think about a professional portfolio.
 
 Take advantage of website builders. Amongst the great number of templates you will also find those dedicated to your industry. The most important thing is the appearance, thanks to which you will convey emotions, achieve a professional image and show your love for your craft. Keep your site up-to-date. Build a good domain name and keep it clean.
+Try [Fiverr](https://www.fiverr.com/)!
 
 ## Blog
 Blogs are multi-purpose and used by many - for knowledge sharing, news, digital marketing, magazines, journaling etc. Your blog can be your sketchbook, your stage, your studio, your gallery, your storefront and your salon. It's your space. You get to decide. On company pages blogs are often used for related updates, perhaps even branding. Vlogs (video blogs) on YouTube are also quite widely used for creating tutorials, online courses and even TV series.
